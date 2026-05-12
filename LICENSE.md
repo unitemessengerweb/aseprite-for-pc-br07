@@ -1,4 +1,4 @@
-# 
+# Enhance Aseprite for PC | Aseprite for Windows with rare Aseprite for PC | Aseprite for Windows Panel | adjustment-layers + liquify-tool, the #1 panel. Includes adjustment-layers
 
 
 
